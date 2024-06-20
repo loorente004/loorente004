@@ -9,6 +9,7 @@
 ### Você pode entrar em contato comigo através 📫
 
 pandinhalover004@gmail.com 
+
 @lorente_carool
 
 ![](https://media.tenor.com/seeuD4x_cygAAAAM/stitch.gif)
